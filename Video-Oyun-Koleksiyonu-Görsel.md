@@ -4,4 +4,3 @@
 ![Ekran görüntüsü 2025-05-18 112458](https://github.com/user-attachments/assets/b532e2bb-7651-4b9a-afc5-ca5341f98103)
 ![Ekran görüntüsü 2025-05-18 112508](https://github.com/user-attachments/assets/10685f82-6563-4436-b19f-f0c6ea3e200e)
 ![Ekran görüntüsü 2025-05-18 112519](https://github.com/user-attachments/assets/23cc0ab3-ace7-4ac3-99bd-04fbf8749355)
-
